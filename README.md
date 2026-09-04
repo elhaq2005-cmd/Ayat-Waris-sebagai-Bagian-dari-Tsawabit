@@ -1,0 +1,1 @@
+# Ayat-Waris-sebagai-Bagian-dari-Tsawabit
